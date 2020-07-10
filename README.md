@@ -1,4 +1,4 @@
-![Alt text](https://cdn.dribbble.com/users/2054184/screenshots/5426945/computer-flat-design.gif?raw=true "Title")
+![Alt text](https://thumbs.gfycat.com/FlusteredSnoopyGuineafowl-small.gif?style=centerme "Title"){ width="800" height="600" style="display: block; margin: 0 auto" }
 
 ### Hi there 👋
 - 🔭 I’m currently working on Open Source Technology Company Limited at Phuket, Thailand
